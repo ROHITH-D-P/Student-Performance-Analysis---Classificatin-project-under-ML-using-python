@@ -37,7 +37,7 @@
 
 📢 Feel free to ask if you’re interested in discussing this project further or exploring opportunities in data analysis and machine learning.
 
-My LinkedIn Profile :- [https://linkedin/in/rohith-d-p](url)
+My LinkedIn Profile :- [https://www.linkedin.com/in/rohith-d-p](url)
 
 Also I would like to thank Hellotech Softwares  for the guidance.
 
